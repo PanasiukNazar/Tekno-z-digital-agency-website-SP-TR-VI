@@ -1,1 +1,1 @@
-# Tekno-z-digital-agency-website-SP-TR-VI
+[DEMO](https://panasiuknazar.github.io/Tekno-z-digital-agency-website-SP-TR-VI/)
